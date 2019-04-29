@@ -1,1 +1,1 @@
-# in-d3-we-believe
+Access site via `premierleague.reyhanhuditama.com` !
